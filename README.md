@@ -19,7 +19,7 @@
 > "In Slytherin, you'll make your real friends, those cunning folks use any means to achieve their ends."
 
 
-[Know your House!](https://brainfall.com/quizzes/which-hogwarts-house-would-you-be-in/)
+Click this: [Know your House!](https://brainfall.com/quizzes/which-hogwarts-house-would-you-be-in/)
 
 
 
@@ -46,3 +46,14 @@
 **-Imperio:** One of the three Unforgivable Curses, it places the target under the complete control of the caster
 
 **-Nox:** Reverses the lumos charm, extinguishing a wand's light
+
+
+## Hogwarts' Uniform
+**First-year students will require:**
+1. Three sets of plain work robes (black)
+2. One plain pointed hat (black) for day wear
+3. One pair of protective gloves (dragon hide or similar)
+4. One winter cloak (black, silver fastenings)
+Please note that all student's clothes should carry name tags at all times."
+— First-year Shopping List for Hogwarts School of Witchcraft and Wizardry[src]
+
