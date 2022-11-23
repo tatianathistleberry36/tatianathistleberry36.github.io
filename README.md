@@ -48,12 +48,22 @@ Click this: [Know your House!](https://brainfall.com/quizzes/which-hogwarts-hous
 **-Nox:** Reverses the lumos charm, extinguishing a wand's light
 
 
-## Hogwarts' Uniform
+## 🫶Hogwarts' Uniform
 **First-year students will require:**
 1. Three sets of plain work robes (black)
+![hogwarts](https://i.pinimg.com/564x/5d/a7/b5/5da7b53ea3b4649964312f50241e5255.jpg)
 2. One plain pointed hat (black) for day wear
+![hogwarts](https://i.pinimg.com/564x/69/7e/74/697e74b6aff8e8c96db919d163034831.jpg)
 3. One pair of protective gloves (dragon hide or similar)
 4. One winter cloak (black, silver fastenings)
 Please note that all student's clothes should carry name tags at all times."
 — First-year Shopping List for Hogwarts School of Witchcraft and Wizardry[src]
 
+## 🔍Hogwarts Map
+![hogwarts](https://i.pinimg.com/564x/bf/c5/13/bfc5138185fe87684f22d8ff872bd64c.jpg)
+
+> Enjoy and make sure to aim for the house cup !
+
+![hogwarts](https://i.pinimg.com/564x/21/96/4a/21964a1a082eb4ba07514caf94dcf33c.jpg)
+
+*~lovelots, co-potterhead*
